@@ -32,3 +32,5 @@ partners:
 没有Logo就先挂IIA的吧OvO
 
 我的文笔不行写得很烂文章不分主次毫无逻辑等等等等的真的很抱歉，在学了在学了QAQ
+
+以及，如果您愿意的话，欢迎来看看[我的博客](https://blogs.starspress.org)！
